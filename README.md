@@ -7,6 +7,8 @@ Sendo que deve-se adequar as faixas etárias das crianças, exemplo: na atividad
 
 ## Fontes Original das imagens utilizadas (Personagens, acessórios e Fantasias)
 
-Heróis:https://br.freepik.com/vetores-gratis/conjunto-de-trajes-de-super-heroi_5971419.htm
+Heróis: https://br.freepik.com/vetores-gratis/conjunto-de-trajes-de-super-heroi_5971419.htm
+
 Princesas Tiana, Pocahontas, Aurora, Belle e Ariel: https://fazendoaminhafesta.com.br/2011/10/bonecas-princesas-para-recortar-e-brincar.html
+
 Branca de neve: https://blog.printloja.com.br/bonecas-de-papel-para-imprimir/
